@@ -1,0 +1,1 @@
+<a href="https://br.freepik.com/vetores-gratis/conjunto-de-elementos-da-barra-de-saude-do-videogame_45011222.htm#fromView=image_search_similar&page=1&position=0&uuid=9dcdbe97-a1df-4b20-b7b8-f7edb28e860b">Imagem de freepik</a>
