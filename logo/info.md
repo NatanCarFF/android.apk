@@ -1,0 +1,1 @@
+<a href="https://br.freepik.com/vetores-gratis/industria-da-construcao-e-ferramentas_5544977.htm#query=epi%20logo&position=2&from_view=keyword&track=ais_hybrid&uuid=07a7d163-8139-4451-9f11-d829f2b037f5">Imagem de studiogstock</a> no Freepik
