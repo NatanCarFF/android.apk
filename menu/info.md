@@ -1,1 +1,10 @@
-
+Declaro que estou com os equipamentos de proteção discriminados abaixo, a título de empréstimo, para uso exclusivo e obrigatório nas excursões das atividades, comprometendo-me a mantê-los em perfeito estado de uso e conservação, conforme determina a NR-06 da Portaria 3214/78 do Ministério do Trabalho, ficando ciente de que:
+Fui orientado da maneira correta de usá-lo, bem como da minha responsabilidade quanto a seu uso, conforme determinado na NR-1 da Portaria 3214/78.
+Se o equipamento for danificado ou inutilizado por emprego inadequado, mau uso, negligência ou extravio, a empresa me fornecerá novo equipamento, podendo debitar em minha conta o valor de um equipamento da mesma marca, ou equivalente existente na praça (Parágrafo único do Art. 462 da C.L.T.).
+Fico proibido de dar ou emprestar o equipamento que estiver sob minha responsabilidade, só podendo fazê-lo se receber ordem por escrito da empresa.
+Em caso de dano, inutilização ou extravio do equipamento, deverei comunicar imediatamente a ocorrência à chefia e/ou ao setor de segurança.
+Terminados os serviços ou no caso de rescisão do contrato de trabalho, devolverei o equipamento completo e em perfeito estado de conservação, considerando-se o tempo de uso do mesmo no setor.
+Estando os equipamentos em minha posse, estarei sujeito a inspeção sem prévio aviso.
+Fico ciente de que pela não utilização do Equipamento de Proteção Individual em serviço, estarei sujeito às sanções disciplinares cabíveis, que irão desde à simples advertência até a dispensa por justa causa, nos termos do art. 482 da C.L.T., combinado com a NR-01 e NR-06 da Portaria 3214/78 do Ministério do Trabalho.
+Declaro ter sempre luvas, óculos de segurança e máscaras de procedimento no setor à minha disposição.
+Declaro ainda que quando a minha integração à empresa, recebi informações gerais de segurança sobre os riscos relativos à minha atividade e as maneiras de proteção, comprometendo-me à cumprir as disposições legais e regulamentares sobre segurança e medicina do trabalho, submetendo-me aos exames médicos previstos e atendendo as políticas e as normas internas da empresa.
